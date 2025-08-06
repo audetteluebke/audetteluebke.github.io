@@ -5,7 +5,7 @@
 
 
 Kat Audette-Luebke<br>
-Senior Revenue Operations Manager <a href="https://github.com/fulcrumapp">@fulcrumapp</a><br>
+Senior Manager, Revenue Operations
 Salt Lake City, Utah, United States<br>
 <a href="https://www.linkedin.com/in/audetteluebke/">in/audetteluebke</a> | <a href="https://github.com/audetteluebke">@audetteluebke</a>
 <p>
